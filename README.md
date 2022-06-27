@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: 
 manu.webdevelopment@gmail.com
+
 www.linkedin.com/in/emanuele-corradino-angiletti-a56b84175
 
 
